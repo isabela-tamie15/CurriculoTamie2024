@@ -1,1 +1,1 @@
-# CurriculoTamie2025
+Currículo Tamie versão 2024
