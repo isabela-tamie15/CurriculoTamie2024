@@ -1,0 +1,1 @@
+# CurriculoTamie2025
